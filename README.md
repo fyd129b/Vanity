@@ -1,2 +1,1 @@
-# Vanity
-Vanity is a free roblox exploit that has unmatched performance and stability with a smooth and sleek UI.
+3btdh1mkOgryth25jxICAf5Hn9udBYV8DokUDrg5H
